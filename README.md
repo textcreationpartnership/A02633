@@ -35,30 +35,34 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A brefe chronycle concernynge the examinacyon and death of the blessed martyr of Christ syr Iohan Ol
+
 #####Body#####
 
-1. ¶ The Preface.
+1. A brefe Chronycle concernynge the Fol. 2 Examinacyon and death of the blessed martyr of Christ syr Iohan Oldecastell the lorde Cobham / collected togyther by Iohan Bale / out of the bokes and writtynges of those Popyshe Prelates which were present both at his condempnacyon and iudgement.
 
-1. ☞The great processe of Thomas Arundell the Archebysshop of Caunterburye and of the Papisticall clergye wt him / agaynst the most noble knyght syr Iohan Oldecastell the lorde Cobham in the yeare of oure Lorde a .M.cccc. and .xlii. wherin is cōtayned his examinacyon / impresonmēt / and excommunycacyon. The processe before his examinacyon.
+    _ ¶ The Preface.
 
-1. ☞ The Christen beleue of the lorde Cobham.
+    _ ☞The great processe of Thomas Arundell the Archebysshop of Caunterburye and of the Papisticall clergye wt him / agaynst the most noble knyght syr Iohan Oldecastell the lorde Cobham in the yeare of oure Lorde a .M.cccc. and .xlii. wherin is cōtayned his examinacyon / impresonmēt / and excommunycacyon. The processe before his examinacyon.
 
-1. ☞The fyrst examynacyon of the lorde Cobham.antichrist was here in full power.
+    _ ☞ The Christen beleue of the lorde Cobham.
 
-1. ☞The determynacyon of the Archebysshop and clergye.
+    _ ☞The fyrst examynacyon of the lorde Cobham.antichrist was here in full power.
 
-1. The latter examynacyon of the lorde Cobham.Ex vetusto exemplari •on dinensium.
+    _ ☞The determynacyon of the Archebysshop and clergye.
 
-1. ☞The diffynytyue sentence of his condemnacyon.
+    _ The latter examynacyon of the lorde Cobham.Ex vetusto exemplari •on dinensium.
 
-1. ☞ An abiuracyon counterfeted of the Bysshoppes.
+    _ ☞The diffynytyue sentence of his condemnacyon.
 
-1. ☞The cruell complaynt of the clergye / and tyrannouse acte thervpon made
+    _ ☞ An abiuracyon counterfeted of the Bysshoppes.
 
-1. ☞ The latter enpresonynge and death of the lorde Cobham.
+    _ ☞The cruell complaynt of the clergye / and tyrannouse acte thervpon made
 
-1. ☞The conclusyon.
+    _ ☞ The latter enpresonynge and death of the lorde Cobham.
+
+    _ ☞The conclusyon.
+
+1. ☞Prophecyes of Ioachim Abbas.
 
 **Types of content**
 
